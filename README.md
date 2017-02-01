@@ -1,3 +1,3 @@
-# DOWN WITH SKYFENCE
+# Down with SkyFence
 
 Rodaway has gone too far.
